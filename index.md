@@ -10,3 +10,7 @@ AK is a young man with blond hair, a big, almost everytime smiling mouth, and un
 * likes to lie in the nature and dream
 * forgets everything
 * plays piano
+
+He said:
+
+> J'ai vu tout de suite comment tu es belle!
